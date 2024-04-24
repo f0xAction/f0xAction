@@ -1,4 +1,4 @@
-- 👋 Hi
+- 👋 Hi - wait for it - introduction weeeyyy
 - 👀 I’m interested in Crypto & Nerd stuff
 - 🌱 I’m currently learning Python and how to get rich! 
 - 📫 How to reach me X/Twitter @f0xAction
