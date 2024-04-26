@@ -7,14 +7,24 @@
 
                cant code but could read code
 
-               coded with 16 y forgot all 10 years later..
+               coded with 16 y forgot all 10 
+               years later..
 
                after that i came to crypto 
 
-               recognized scripts/code languages and still trying to increase. 
+               maybe not the best but i can
+               understand the main function 
+               of a sc, token program,
+               payload, extensions or most
+               git's blockchain related.
 
 
-- 🥸 ---->     To busy, to lazy, to less effort = me          
+- 🥸 ---->     To busy, to lazy, to less 
+               effort = me          
                
-- 🙄 notice my english isnt the best at all !
+
+ℹ️ Disclaimer:
+
+
+ my english isn't my highest skilled ability 😇🤯
 
